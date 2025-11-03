@@ -6,3 +6,8 @@ Desarrollado por:
 Sebastián Flórez Jaramillo - 1'040.750.946 
 Estudiante de Ingeniería de Sistemas - UdeA
 
+Video entrega 2: https://youtu.be/7yMlHllHPxY
+
+Usuario Kaggle: sebasfj
+
+
