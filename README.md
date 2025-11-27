@@ -8,7 +8,7 @@ Estudiante de Ingeniería de Sistemas - UdeA
 
 Video entrega 2: https://youtu.be/7yMlHllHPxY
 
-Video entrega final: 
+Video entrega final: https://youtu.be/dJk1X5_S9R0
 
 Usuario Kaggle: sebasfj
 
